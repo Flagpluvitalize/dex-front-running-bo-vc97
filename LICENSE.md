@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with professional dex market making bot Plugin | front-running-detection + token-launch-monitoring, the #1 dex market making bot. Includes
 
 
 
